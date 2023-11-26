@@ -24,4 +24,4 @@ Key highlights:
 
 PBIX file Link:https://drive.google.com/file/d/1YJDCBqkvEOhJC_X2zPBZNEqmRnZegT6l/view?usp=sharing
 
-PDF Link:https://drive.google.com/file/d/128aYAzQ_MchfbF-VdQaYrhE-1N6yYf4A/view?usp=sharing
+PDF Link:https://drive.google.com/file/d/1EXUa_5sur1qYas6uBydCpL6wsceb4PUS/view?usp=sharing
